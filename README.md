@@ -4,4 +4,4 @@
 
 #### cloud platform http://nextplatform.com/
 
-#### http://nextplatform.net
+#### 혁신기술 사업화 파트너 http://nextplatform.net
